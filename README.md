@@ -1,6 +1,6 @@
-Name:Aakanksha Sahu
+Name-Aakanksha Sahu
 
-Branch:IT
+Branch-IT
 
-Roll no:25118001
+Roll no-25118001
 
