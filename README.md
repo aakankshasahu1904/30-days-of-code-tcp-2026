@@ -16,4 +16,10 @@ Roll no-25118001
 
 ![Image](https://github.com/user-attachments/assets/0313f106-b426-4c8a-997c-dd36d6dcccbf)
 
+![Image](https://github.com/user-attachments/assets/3bb7876f-9906-4c99-8c43-6f768c19c910)
+
+![Image](https://github.com/user-attachments/assets/ed4bc686-8194-4d6e-8c01-a04d17baa932)
+
+![Image](https://github.com/user-attachments/assets/9d83997d-b2be-4418-ad95-a6ba8e04a23f)
+
 
