@@ -26,4 +26,8 @@ Roll no-25118001
 
 ![Image](https://github.com/user-attachments/assets/51a51d50-b550-4556-b1c6-d9d35c912c65)
 
+<img width="1325" height="631" alt="Image" src="https://github.com/user-attachments/assets/dfc0d205-f67d-4bed-9c6a-84b5f173085c" />
+
+<img width="1208" height="679" alt="Image" src="https://github.com/user-attachments/assets/3d4f75bb-cfd8-44ab-8c59-e54d8ba90e3e" />
+
 
